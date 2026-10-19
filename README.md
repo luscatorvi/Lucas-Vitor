@@ -45,7 +45,7 @@
 
 ## 📫 Contact
 
-📩 **E-mail:** lucasvitorlucs@gmail.com  
+📩 **E-mail:** lucasvitorclaro@hotmail.com  
 💼 **LinkedIn:** https://www.linkedin.com/in/lucasvitor17  
 🐱 **GitHub:** https://github.com/luscatorvi  
 
